@@ -1,1 +1,0 @@
-# somalilandpower.github.io
